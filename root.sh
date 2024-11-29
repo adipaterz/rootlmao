@@ -1,3 +1,12 @@
+luckpool
+RKhbdbMmwLTVTQqfAk6KHUr2q6saB3zryP
+
+Muter Muter
+Arsenpanda123
+
+
+
+
 unzip yt.zip
 
 unzip root.zip
